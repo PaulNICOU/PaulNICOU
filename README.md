@@ -1,6 +1,6 @@
 ## Hi there my name's Paul 👋🏼
 
-> Student in Political Science Degree
+> Student in Corporate Finance / Wealth management 
 
 [![HitCount](http://hits.dwyl.com/PaulNICOU/PaulNICOU.svg)](http://hits.dwyl.com/PaulNICOU/PaulNICOU)
 
