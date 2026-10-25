@@ -1,6 +1,6 @@
 ## Hi there my name's Paul 👋🏼
 
-> Student in Corporate Finance / Wealth management 
+> Builder
 
 <div align="center">
 
